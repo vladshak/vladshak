@@ -1,4 +1,4 @@
-![Imagen de portada - Tarjeta Personal](https://vladimir-martinez.neocities.org/Tarjeta%20Personal/portada.jpg)
+![Imagen de portada - Tarjeta Personal](https://vladimir-martinez.neocities.org/Tarjeta%20Personal/img/img4.jpg)
 
 ¡Hola! 👋 **Aníbal Vladimir Martínez**
 
